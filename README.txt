@@ -1,4 +1,4 @@
-Editorial by HTML5 UP
+Lucas Martins Analista Rede Socias
 html5up.net | @ajlkn
 Free for personal and commercial use under the CCA 3.0 license (html5up.net/license)
 
